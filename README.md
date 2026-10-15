@@ -1,0 +1,1 @@
+# T-cnicas-computacionais.-2026
